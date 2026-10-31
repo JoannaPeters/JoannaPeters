@@ -3,7 +3,7 @@
 
 Hi, I'm **Joanna**, a **Business IT & Management** student at **HU University of Applied Sciences Utrecht**.
 
-I'm interested in turning complex business questions into clear insights and practical improvements. I enjoy exploring how data and technology can support better decisions, and I'm working towards a career as a **business analyst or consultant**.
+I'm interested in turning complex business questions into clear insights and practical improvements. I enjoy exploring how data and technology can support better decisions, and I'm working towards a career as a **business analyst & consultant**.
 
 > ✧ Understanding the question. Exploring the data. Finding a way forward.
 
