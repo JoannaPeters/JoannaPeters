@@ -1,5 +1,5 @@
 
-## A little about me
+## 🪩 A little about me 🪩
 
 Hi, I'm **Joanna**, a **Business IT & Management** student at **HU University of Applied Sciences Utrecht**.
 
